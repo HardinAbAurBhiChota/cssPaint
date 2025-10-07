@@ -1,1 +1,1 @@
-*Ai Help has been taken in this project*
+The project is made solely for entertainment purposes as a newbie
